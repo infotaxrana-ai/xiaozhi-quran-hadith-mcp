@@ -1,0 +1,1 @@
+# xiaozhi-quran-hadith-mcp
